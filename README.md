@@ -1,1 +1,0 @@
-# Hello-World, is welcoming anyone with a strong mindset to bring a different in my work and to effectively contribute to the building of this platform to help anyone to be able to understand changes that are made.
